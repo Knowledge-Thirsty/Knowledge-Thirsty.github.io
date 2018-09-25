@@ -1,1 +1,1 @@
-# Knowledge-Thirsty.github.io
+# KnowledgeThirsty.github.io
